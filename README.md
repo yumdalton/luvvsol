@@ -1,16 +1,15 @@
-## Hi there 👋
+<img src="https://files.catbox.moe/3pyjrv.jpg" width="1900" height="140">
 
-<!--
-**luvvsol/luvvsol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# ᴿᵉᵃᵈ ᵇ⁴ ⁱⁿᵗᵉʳᵃᶜᵗⁱⁿᵍ . ᛝ
 
-Here are some ideas to get you started:
+please read, bc i wont repeat again!! i have hpd which means i often feel uncomf if im not the center attention, my behavior is often confusing n' such. i dont like explaining my condition, nor want ppl being pity for me── pls understand this if u are going to be interacting/sitting w me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+im currently 16 and this year im having my last exam!! i might not be online often due to excessive work. If you are under 14 please do not int w me /uf/ , even so i would probably still talk to you󠀠󠀠󠀠.
+
+im most likely to hide/block u if i find you annoying/problematic
+
+(and yes, im admitting to that i have a big ego. so i'd prbs argue randomly if im not pleased)
+
+![image alt](https://files.catbox.moe/0ikteb.jpg)
+
+<img src="https://files.catbox.moe/tfkbwb.jpg" width="1900" height="140">

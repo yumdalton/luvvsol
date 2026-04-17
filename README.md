@@ -8,7 +8,7 @@ i feel excluded easily, pls dont void me❤❤
 i love cuddles! mostly unstated ones// any interaction is fine!! but im probably offtb so w2i at all times whn starting a convo.
 
 also a self taught artist! im not taking any comms rn ((on break))
-iluv this guyalot >>> @k4-b00m
+doing ponies comms 4 supporter ((tier 5))
 
 ![image alt](https://files.catbox.moe/fxhc3g.jpg)
 

@@ -10,6 +10,7 @@ i love cuddles! mostly unstated ones// any interaction is fine!! but im probably
 also a self taught artist! im not taking any comms rn ((on break))
 
 i use masc terms strictly. not in allat of fandoms, but you can still yap abt urs! i luv silly people , plS BMF ><
+
 im admitting to that i have a huge ego, i lost lots of friends mostly bc of it, im currently trying to change, pls be patient w me.
 
 

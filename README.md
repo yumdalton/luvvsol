@@ -3,7 +3,7 @@
 # ᴿᵉᵃᵈ ᵇ⁴ ⁱⁿᵗᵉʳᵃᶜᵗⁱⁿᵍ . ᛝ
 
 die hard yumeshipper . youll most likely to be blocked if you copy any of my skins w/out perms.
-i feel excluded easily, pls dont void me❤❤
+i feel excluded easily, pls dont void me❤❤ (i also h8 being covered, dncoveruf.)
 
 i love cuddles! mostly unstated ones// any interaction is fine!! but im probably offtb so w2i at all times whn starting a convo.
 
